@@ -1,2 +1,5 @@
 # porfolio
-sung eun works
+sung eun works!
+welcome~
+
+
